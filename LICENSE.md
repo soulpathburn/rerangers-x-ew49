@@ -1,4 +1,4 @@
-#  
+#  Experience re:rangers x like never before with re:rangers x exclusive Script, the #1 Script. Includes auto-collect and silent aim for unbeatable
 
 
 
